@@ -18,4 +18,5 @@
 
 ### Resutados
 
-[![Alt text](https://github.com/user-attachments/assets/bac1673d-27e1-4e5b-a33d-ca381632f98a)
+[resultado](https://github.com/user-attachments/assets/d080b774-88c9-4b96-9858-d4a03c571573)
+
